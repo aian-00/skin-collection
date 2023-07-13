@@ -29,7 +29,7 @@
 ![](https://i.imgur.com/AdB7O2q.jpeg)
 
 # ⭐⭐[- FunOrange kznzx edit 1.0](https://www.mediafire.com/file/vyai5an05vitw4c/FunOrange_kznzx_edit_1.0.osk/file)
-![](https://i.imgur.com/lNoWstR.jpeg)
+![](https://i.imgur.com/m4WZmb5.jpeg)
 
 # ⭐⭐[- Ekoro kznzx edit](https://www.mediafire.com/file/w7i3iifl3owhqd9/Blueberry_%2528Ekoro%2529_kznzx_edit.osk/file)
 ![](https://i.imgur.com/2aorhF9.png)
