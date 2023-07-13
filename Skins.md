@@ -1,18 +1,13 @@
 # RyuK super rad main skins compilation
 
 
-# [arnold](https://mega.nz/file/lbZA1LZR#jhJZdMShbFYuIe7teOEwGapSGCI9Hv0kAreNAuiaXoU) 
+# CREDITS TO RYUK FOR THE GITHUB TEMPLATE
 
 
-# [HP Bar](https://i.imgur.com/dh79Bwo.png)
-![](https://i.imgur.com/dh79Bwo.png)
 
-# If a link is down let @twinstars01 know (1214#4121) some links are permagone and i don't have the skins so don't bitch at me if i say ur out of luck
 
-# Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
-
-# [- ryo monko thing -](https://mega.nz/file/1PoBQboa#d8IQyEpPejEgmVHBRilpC_lRKiXV2DQ3FH2q2JRRcvA)
-![](https://i.imgur.com/EXQSmRb.png)
+# [- Shige mix kznzx](https://www.mediafire.com/file/l3aoostmeepfylr/-_-_-_shige_mix_kznzx.osk/file)
+![](https://i.imgur.com/y3rnJ34.jpeg)
 
 ]# [- ryo_dt_rafis -](https://mega.nz/file/BbJgmbIa#gxP_ZtW8fIvNnp-i24d3692nqMC5-ReW7dGMgK89Um0)
 ![](https://osu.ppy.sh/ss/18428967/46bd)
