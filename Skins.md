@@ -8,7 +8,7 @@
 # Personal favorites are the ones with a ⭐ next to them
 # Don't Forget to Check Out the ~ Extras ~ folder ❗❗❗
 
-# ⚠️ ALL SKINS ARE @Milkteaism APPROVED ⚠️
+# ⚠️⚠️⚠️ ALL SKINS ARE @Milkteaism APPROVED ⚠️⚠️⚠️
 
 # ⭐⭐⭐[- Shige mix kznzx](https://www.mediafire.com/file/l3aoostmeepfylr/-_-_-_shige_mix_kznzx.osk/file)
 ![](https://i.imgur.com/y3rnJ34.jpeg)
