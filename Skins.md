@@ -10,6 +10,9 @@
 
 # ⚠️⚠️⚠️ ALL SKINS ARE @Milkteaism APPROVED ⚠️⚠️⚠️
 
+# ⭐⭐⭐⭐[- - Lugia Shauns kznzx edit](https://www.mediafire.com/file/9m237uwct3q1apl/-_-_Lugia_Shauns_kznzx_edit.osk/file)
+![](https://i.imgur.com/ovP8QvK.png)
+
 # ⭐⭐⭐[- Shige mix kznzx](https://www.mediafire.com/file/l3aoostmeepfylr/-_-_-_shige_mix_kznzx.osk/file)
 ![](https://i.imgur.com/y3rnJ34.jpeg)
 
