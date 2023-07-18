@@ -11,7 +11,7 @@
 # CREDITS TO RYUK FOR THE GITHUB TEMPLATE
 
 # ⚠️⚠️⚠️[~ Extras Folder ~](https://www.mediafire.com/folder/bh9bjhsg9r814/~+Extras+~)⚠️⚠️⚠️
-![](https://i.imgur.com/ovP8QvK.png)
+![](https://i.imgur.com/DkklQJk.png)
 
 # ⭐⭐⭐⭐⭐[[kznzx] cookiezi aian edit](https://www.mediafire.com/file/j5ygqt7l9yvx2a4/%255Bkznzx%255D_cookiezi_aian_edit.osk/file)
 ![](https://i.imgur.com/k9y8Irl.jpeg)
