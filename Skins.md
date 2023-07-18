@@ -10,6 +10,9 @@
 
 # CREDITS TO RYUK FOR THE GITHUB TEMPLATE
 
+# ⭐⭐⭐⭐⭐[[kznzx] cookiezi aian edit](https://www.mediafire.com/file/j5ygqt7l9yvx2a4/%255Bkznzx%255D_cookiezi_aian_edit.osk/file)
+![](https://i.imgur.com/k9y8Irl.jpeg)
+
 # ⭐⭐⭐⭐[- - Lugia Shauns kznzx edit](https://www.mediafire.com/file/9m237uwct3q1apl/-_-_Lugia_Shauns_kznzx_edit.osk/file)
 ![](https://i.imgur.com/ovP8QvK.png)
 
