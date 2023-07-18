@@ -3,12 +3,12 @@
 # Discord: @m_aurice_
 # Join my Discord server: https://discord.gg/fqMTN2Scta
 
-# CREDITS TO RYUK FOR THE GITHUB TEMPLATE
+# ⚠️⚠️⚠️ ALL SKINS ARE @Milkteaism APPROVED ⚠️⚠️⚠️
 
 # Personal favorites are the ones with a ⭐ next to them
 # Don't Forget to Check Out the ~ Extras ~ folder ❗❗❗
 
-# ⚠️⚠️⚠️ ALL SKINS ARE @Milkteaism APPROVED ⚠️⚠️⚠️
+# CREDITS TO RYUK FOR THE GITHUB TEMPLATE
 
 # ⭐⭐⭐⭐[- - Lugia Shauns kznzx edit](https://www.mediafire.com/file/9m237uwct3q1apl/-_-_Lugia_Shauns_kznzx_edit.osk/file)
 ![](https://i.imgur.com/ovP8QvK.png)
