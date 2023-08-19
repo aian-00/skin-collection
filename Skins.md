@@ -13,6 +13,12 @@
 # ⚠️⚠️⚠️[~ Extras Folder ~](https://www.mediafire.com/folder/bh9bjhsg9r814/~+Extras+~)⚠️⚠️⚠️
 ![](https://i.imgur.com/DkklQJk.png)
 
+# ⭐⭐⭐⭐⭐[[kznzx]rammu hd kznzx edit](https://www.mediafire.com/file/cd98ir6ueon7dr7/rammu_hidden.osk/file)
+![](https://i.imgur.com/1grXCpr.png)
+
+# ⭐⭐⭐⭐⭐[[kznzx]abyssal kznzx edit](https://www.mediafire.com/file/eh8glwkimd6yhcv/%255Bkznzx%255D_abyssal_edit.osk/file)
+![](https://i.imgur.com/Rvk2ABu.png)
+
 # ⭐⭐⭐⭐⭐[[kznzx]ryan new kznzx edit](https://www.mediafire.com/file/wqfy6hqjw5ergfx/ryan+new+aian+edit.osk/file)
 ![](https://i.imgur.com/CykOsIe.jpeg)
 
