@@ -13,6 +13,33 @@
 # ⚠️⚠️⚠️[~ Extras Folder ~](https://www.mediafire.com/folder/bh9bjhsg9r814/~+Extras+~)⚠️⚠️⚠️
 ![](https://i.imgur.com/DkklQJk.png)
 
+# ⭐⭐[[kznzx] varvalian edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/jUsAx1s.jpeg)
+
+# ⭐⭐[[kznzx] vaxei edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/XgcswLl.jpeg)
+
+# ⭐⭐[[kznzx] whitecat edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/wzLOjv3.jpeg)
+
+# ⭐⭐[[kznzx] mathi edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/4S10SO9.jpeg)
+
+# ⭐⭐[[kznzx] toy edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/lTqHGrC.png)
+
+# ⭐⭐[[kznzx] vaxei edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/XgcswLl.jpeg)
+
+# ⭐⭐[[kznzx] funorange 3.0 edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/sTuXDel.jpeg)
+
+# ⭐⭐[[kznzx] rohulk edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/gAtqznz.jpeg)
+
+# ⭐⭐[[kznzx] uberlegen edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+![](https://i.imgur.com/YkUApJG.png)
+
 # ⭐⭐[[kznzx] flyingtuna enri edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
 ![](https://i.imgur.com/6FMZblo.jpeg)
 
