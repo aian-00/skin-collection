@@ -13,10 +13,11 @@
 # ⚠️⚠️⚠️[~ Extras Folder ~](https://www.mediafire.com/folder/bh9bjhsg9r814/~+Extras+~)⚠️⚠️⚠️
 ![](https://i.imgur.com/DkklQJk.png)
 
-# ⭐⭐[[kznzx] varvalian edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+
+# ⭐⭐[[kznzx] varvalian edit](https://www.mediafire.com/file/hfqapjbp4ppsubg/%255Bkznzx%255D_varvalian_edit.osk/file)
 ![](https://i.imgur.com/jUsAx1s.jpeg)
 
-# ⭐⭐[[kznzx] vaxei edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+# ⭐⭐[[kznzx] vaxei edit](https://www.mediafire.com/file/fjks1yz0pu02czs/%255Bkznzx%255D_vaxei.osk/file)
 ![](https://i.imgur.com/XgcswLl.jpeg)
 
 # ⭐⭐[[kznzx] whitecat edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
@@ -25,20 +26,23 @@
 # ⭐⭐[[kznzx] mathi edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
 ![](https://i.imgur.com/4S10SO9.jpeg)
 
-# ⭐⭐[[kznzx] toy edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+# ⭐⭐[[kznzx] aricin edit](https://www.mediafire.com/file/q5lq4s55zuzzgk8/%255Bkznzx%255D_aricin.osk/file)
+![](https://i.imgur.com/Un25i7r.png)
+
+# ⭐⭐[[kznzx] toy edit](https://www.mediafire.com/file/nx014c8i9his4b5/%255Bkznzx%255D_toy_edit.osk/file)
 ![](https://i.imgur.com/lTqHGrC.png)
 
-# ⭐⭐[[kznzx] vaxei edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
-![](https://i.imgur.com/XgcswLl.jpeg)
-
-# ⭐⭐[[kznzx] funorange 3.0 edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+# ⭐⭐[[kznzx] funorange 3.0 edit](https://www.mediafire.com/file/j0cozvg09souqxw/%255Bkznzx%255D_funorange_3.0_edit.osk/file)
 ![](https://i.imgur.com/sTuXDel.jpeg)
 
-# ⭐⭐[[kznzx] rohulk edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+# ⭐⭐[[kznzx] rohulk edit](https://www.mediafire.com/file/satejaqy5hsnut3/%255Bkznzx%255D_rohulk_edit.osk/file)
 ![](https://i.imgur.com/gAtqznz.jpeg)
 
-# ⭐⭐[[kznzx] uberlegen edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
+# ⭐⭐[[kznzx] uberlegen edit](https://www.mediafire.com/file/y0xritdfn7dm75p/%255Bkznzx%255D_uberlegen_edit.osk/file)
 ![](https://i.imgur.com/YkUApJG.png)
+
+# ⭐⭐[[kznzx] zone edit](https://www.mediafire.com/file/hqpxkhaiewmnien/%255Bkznzx%255D_zone_edit.osk/file)
+![](https://i.imgur.com/OvxN6pQ.jpeg)
 
 # ⭐⭐[[kznzx] flyingtuna enri edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
 ![](https://i.imgur.com/6FMZblo.jpeg)
