@@ -13,8 +13,8 @@
 # ⚠️⚠️⚠️[~ Extras Folder ~](https://www.mediafire.com/folder/bh9bjhsg9r814/~+Extras+~)⚠️⚠️⚠️
 ![](https://i.imgur.com/DkklQJk.png)
 
-# ⭐⭐[[kznzx] default edit](https://www.mediafire.com/file/nny64xmqxlydtpf/%255Bkznzx%255D_default_edit.osk/file)
-![](https://i.imgur.com/zKkhCX6.png)
+# ⭐⭐[[kznzx] default edit](https://www.mediafire.com/file/svj807sgjc8d7a0/%255Bkznzx%255D_default_edit.osk/file)
+![](https://i.imgur.com/S8p7wjD.png)
 
 # ⭐⭐[[kznzx] varvalian edit](https://www.mediafire.com/file/hfqapjbp4ppsubg/%255Bkznzx%255D_varvalian_edit.osk/file)
 ![](https://i.imgur.com/jUsAx1s.jpeg)
