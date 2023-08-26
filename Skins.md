@@ -13,6 +13,9 @@
 # ⚠️⚠️⚠️[~ Extras Folder ~](https://www.mediafire.com/folder/bh9bjhsg9r814/~+Extras+~)⚠️⚠️⚠️
 ![](https://i.imgur.com/DkklQJk.png)
 
+# ⭐⭐[[kznzx] argyle green](https://www.mediafire.com/file/3nywiyzhwbmns3k/%255Bkznzx%255D_argyle_green.osk/file)
+![](https://i.imgur.com/8mAh6vG.jpeg)
+
 # ⭐⭐[[kznzx] argyle](https://www.mediafire.com/file/85que769ueqg5z5/%255Bkznzx%255D_argyle.osk/file)
 ![](https://i.imgur.com/sb681Gk.jpeg)
 
