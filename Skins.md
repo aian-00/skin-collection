@@ -19,6 +19,9 @@
 # ⭐⭐[[kznzx] argyle](https://www.mediafire.com/file/85que769ueqg5z5/%255Bkznzx%255D_argyle.osk/file)
 ![](https://i.imgur.com/sb681Gk.jpeg)
 
+# ⭐⭐[[kznzx] jace edit](https://www.mediafire.com/file/6txn5glnubxei9b/%255Bkznzx%255D_jace_edit.osk/file)
+![](https://i.imgur.com/w7MizjM.png)
+
 # ⭐⭐[[kznzx] default edit](https://www.mediafire.com/file/svj807sgjc8d7a0/%255Bkznzx%255D_default_edit.osk/file)
 ![](https://i.imgur.com/S8p7wjD.png)
 
