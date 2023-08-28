@@ -1,4 +1,4 @@
-# ⭐ kznzx super rad main skins compilation ⭐ ❗❗❗
+  # ⭐ kznzx super rad main skins compilation ⭐ ❗❗❗
 
 # Discord: @m_aurice_
 # Join my Discord server: https://discord.gg/fqMTN2Scta
@@ -28,8 +28,8 @@
 # ⭐⭐[[kznzx] vaxei edit](https://www.mediafire.com/file/fjks1yz0pu02czs/%255Bkznzx%255D_vaxei.osk/file)
 ![](https://i.imgur.com/XgcswLl.jpeg)
 
-# ⭐⭐[[kznzx] whitecat edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
-![](https://i.imgur.com/wzLOjv3.jpeg)
+# ⭐⭐[[kznzx] whitecat edit](https://www.mediafire.com/file/9kfvw3oxweg5tgl/%255Bkznzx%255D_whitecat_edit.osk/file)
+![](https://i.imgur.com/G8FGRHn.jpeg)
 
 # ⭐⭐[[kznzx] mathi edit](https://www.mediafire.com/file/gvwe1rrqoc1mgl3/%255Benri%255D_flyingtuna.osk/file)
 ![](https://i.imgur.com/4S10SO9.jpeg)
