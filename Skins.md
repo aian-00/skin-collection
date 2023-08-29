@@ -1,4 +1,4 @@
-!# ⭐ kznzx super rad main skins compilation ⭐ ❗❗❗
+# ⭐ kznzx super rad main skins compilation ⭐ ❗❗❗
 
 # Discord: @m_aurice_
 # Join my Discord server: https://discord.gg/fqMTN2Scta
