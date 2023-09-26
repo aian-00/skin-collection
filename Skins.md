@@ -1,11 +1,8 @@
-# ⭐ kznzx super rad main skins compilation ⭐ ❗❗❗
 
-# Discord: @m_aurice_
-# Join my Discord server: https://discord.gg/fqMTN2Scta
 
-# ⚠️⚠️⚠️ ALL SKINS ARE @Milkteaism APPROVED ⚠️⚠️⚠️
 
-# Personal favorites are the ones with a ⭐ next to them
+
+
 # Don't Forget to Check Out the ~ Extras ~ folder ❗❗❗
 
 # CREDITS TO RYUK FOR THE GITHUB TEMPLATE
