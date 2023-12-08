@@ -106,8 +106,7 @@
 # [- Ekoro Rafis kznzx edit](https://www.mediafire.com/file/jk0kmv89f646qoc/Blueberry.osk/file)
 ![](https://i.imgur.com/exBfDb5.png)
 
-# [- Chitanda kznzx edit](https://www.mediafire.com/file/xu1o15rfqq32qoq/Chitanda_edit.osk/file)
-![](https://i.imgur.com/lNoWstR.jpeg)
+
 
 
 
